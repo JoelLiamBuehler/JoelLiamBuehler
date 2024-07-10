@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JoelLiamBuehler
-- 👀 I’m interested in economics, ecology, labour.
+- 👀 I’m interested in economics, public administration, ecology, labour.
 - 🌱 I’m currently learning about Marxian ecological thought.
 - 💞️ I’m looking to collaborate on research projects in economics.
 - 📫 How to reach me: joel.l.buehler@gmail.com
